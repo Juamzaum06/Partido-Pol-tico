@@ -1,1 +1,1 @@
-# Partido-Pol-tico
+# Partido-Politico
